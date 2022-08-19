@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Kagero21
+- 👀 I’m interested in anything about programming
+- 🌱 I’m currently learning git and phyton
+- 💞️ I’m looking to collaborate on 
+- 📫 How to reach me -> contact me on Discord @ Kagero#8847
